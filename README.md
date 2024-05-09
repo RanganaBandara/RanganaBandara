@@ -5,7 +5,7 @@
 - 📫 How to reach me
                   RanganaBandara           - LinkedIn
                   Rangana Bandara          - Facebook
-                  ranganadeneth8@gmail.com - email
+                  ranganadeneth6@gmail.com - email
     
 
 <!---
